@@ -1,0 +1,1 @@
+# ScreencaptureScriptMT4
